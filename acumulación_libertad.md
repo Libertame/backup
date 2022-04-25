@@ -1,3 +1,4 @@
+La acumulación de la libertad. Escritos sobre economía anarquista (2012) – Deric Shannon, Anthony J. Nocella II, John As
 *   **[Agradecimientos](#cap1)**
     *   Deric Shannon
     *   John Asimakopoulos
